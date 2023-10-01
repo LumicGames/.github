@@ -2,7 +2,7 @@
 
 ✉️ Contact: none
 
-🌐 Discord Comunity: none
+🌐 Discord Comunity: https://discord.gg/AsPhVW63Gw
 
 🐦 Twitter: @orenationstudios
 
