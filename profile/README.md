@@ -1,9 +1,9 @@
 👋 hi, welcome to github profile of OreNation
 
-✉️ Contact: none
+✉️ Contact: [none]()
 
-🌐 Discord Comunity: https://discord.gg/AsPhVW63Gw
+🌐 Discord Comunity: [click here](https://discord.gg/AsPhVW63Gw)
 
-🐦 Twitter: @orenationstudios
+🐦 Twitter: [click here](https://twitter.com)
 
-📰 Website: none
+📰 Website: [none]()
