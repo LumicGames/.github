@@ -4,10 +4,10 @@
 
 ✉️ Contact: [Gmail](mailto:orenationstudios@gmail.com)
 
-🌐 Discord Comunity: [click here](https://discord.gg/AsPhVW63Gw)
+🌐 Discord Comunity: [Click Here](https://discord.gg/AsPhVW63Gw)
 
-🐦 Twitter: [click here](https://twitter.com)
+🐦 Twitter: [Click Here](https://twitter.com)
 
-📰 Website: none
+📰 Website: None
 
 -----------------------------------------
