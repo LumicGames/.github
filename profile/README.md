@@ -1,8 +1,8 @@
-👋 hi, welcome to github profile of OreNation 👋
+👋 hi, welcome to github profile of Lumic Games 👋
 
 -----------------------------------------
 
-✉️ Contact: [Gmail](mailto:orenationstudios@gmail.com)
+✉️ Contact: [Gmail](mailto:lumicgamesstudios@gmail.com)
 
 🌐 Discord Comunity: [Click Here](https://discord.gg/AsPhVW63Gw)
 
